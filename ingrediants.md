@@ -1,0 +1,5 @@
+12 ounces	Bulletproof Brewed Coffee (hot, click to find out more)
+2 tablespoons	Ghee (click to find out more)
+1 tablespoon	Mct Oil (click to find out more)
+add pinch	Pink Salt (optional)
+½ teaspoon	Ground Cinnamon (optional)
